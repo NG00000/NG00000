@@ -1,0 +1,1 @@
+I am NG00000 I am learning various technologies and curious how that works, I am intrested in GO programming language and intrested in writing malwares, I like to exploit vulnerability and exhilarated to create a vulnerability.
